@@ -4,7 +4,7 @@ dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need 
 
 
 Click on the skin name to download.
-# Some of the skins RyuK uses may be private or unfinished and may not be listed
+# Some of the skins RyuK uses might be private or unfinished and may not be listed
 
 # [- Jaret - Mish Mosh Goose Edit](https://mizaru.s-ul.eu/Znd7qtOI)
 ![](https://osu.ppy.sh/ss/11775743)
