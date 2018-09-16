@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Rafis RyuK Edit -](https://mizaru.s-ul.eu/TejHx3RT) 
+![](https://osu.ppy.sh/ss/11792233)
+
 # [- Jaret - Mish Mosh Goose Edit](https://mizaru.s-ul.eu/Znd7qtOI)
 ![](https://osu.ppy.sh/ss/11775743)
 
@@ -59,9 +62,6 @@ Click on the skin name to download.
 
 # [おやすみ 『goodnight』](https://mizaru.s-ul.eu/iOc2vs3v) 
 ![](https://osu.ppy.sh/ss/11775810)
-
-# [- Rafis RyuK Edit -](https://mizaru.s-ul.eu/TejHx3RT) 
-![](https://osu.ppy.sh/ss/11792233)
 
 # [- bahamete (Yamemasita mod v2)](https://mizaru.s-ul.eu/OkEnbRBX) 
 ![](https://osu.ppy.sh/ss/11775814)
