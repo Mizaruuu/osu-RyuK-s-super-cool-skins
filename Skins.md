@@ -6,6 +6,15 @@ dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- informous -](https://www.dropbox.com/s/nhezj7vofdtem11/-%20informous%20-.osk?dl=0) 
+![](https://osu.ppy.sh/ss/11794842)
+
+# [- Uberlegen beta9 -](https://www.dropbox.com/s/538gym61ns8nl5d/Uberlegen%20Skin%20beta9.osk?dl=0) 
+![](https://osu.ppy.sh/ss/11794839)
+
+# [- RyuK Azerite Megumin Modified -](https://www.dropbox.com/s/1ikfbn79xnenwk2/-%20Azerite%20Modif%20-.osk?dl=0) 
+![](https://osu.ppy.sh/ss/11794834)
+
 # [- Rafis RyuK Edit -](https://mizaru.s-ul.eu/TejHx3RT) 
 ![](https://osu.ppy.sh/ss/11792233)
 
