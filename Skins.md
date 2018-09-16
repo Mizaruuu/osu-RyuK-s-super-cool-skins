@@ -60,8 +60,8 @@ Click on the skin name to download.
 # [おやすみ 『goodnight』](https://mizaru.s-ul.eu/iOc2vs3v) 
 ![](https://osu.ppy.sh/ss/11775810)
 
-# [Rafis 2k18](https://mizaru.s-ul.eu/OfSdilnZ) 
-![](https://osu.ppy.sh/ss/11775739)
+# [- Rafis RyuK Edit -](https://mizaru.s-ul.eu/TejHx3RT) 
+![](https://osu.ppy.sh/ss/11792233)
 
 # [- bahamete (Yamemasita mod v2)](https://mizaru.s-ul.eu/OkEnbRBX) 
 ![](https://osu.ppy.sh/ss/11775814)
