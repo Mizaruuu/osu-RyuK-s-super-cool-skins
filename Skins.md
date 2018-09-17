@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Seoul Cookiezi Old modif -](https://www.dropbox.com/s/qzucmb4pjo9vcjv/-%20Seoul%20cookiezi%20old%20modif%20-.osk?dl=0) 
+![](https://osu.ppy.sh/ss/11801040)
+
 # [- informous -](https://www.dropbox.com/s/nhezj7vofdtem11/-%20informous%20-.osk?dl=0) 
 ![](https://osu.ppy.sh/ss/11794842)
 
