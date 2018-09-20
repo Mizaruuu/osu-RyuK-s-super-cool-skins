@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Ninja Fortnite -](http://puu.sh/BxiYh/aa3db400d3.osk) 
+![](https://osu.ppy.sh/ss/11813228)
+
 # [- Seoul Cookiezi Old modif -](https://www.dropbox.com/s/qzucmb4pjo9vcjv/-%20Seoul%20cookiezi%20old%20modif%20-.osk?dl=0) 
 ![](https://osu.ppy.sh/ss/11801040)
 
