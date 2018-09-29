@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Kyle](https://mizaru.s-ul.eu/8C4Ava72)
+![](https://osu.ppy.sh/ss/11866753)
+
 # [- dddddv2 -](https://www.dropbox.com/s/hsrm9vgkoksu61m/-_ddddd_v2_-.osk?dl=0) 
 ![](https://osu.ppy.sh/ss/11860986)
 
