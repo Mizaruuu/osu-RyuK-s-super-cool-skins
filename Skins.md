@@ -6,7 +6,7 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo if there's a skin not listed 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [- Ceptin](https://snowy.s-ul.eu/1gIhkDhI)
+# [- Ceptin](https://snowy.s-ul.eu/tHatFbre)
 ![](https://osu.ppy.sh/ss/11874604)
 
 # [- Kyle](https://mizaru.s-ul.eu/8C4Ava72)
