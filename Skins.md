@@ -1,5 +1,5 @@
 # RyuK super rad main skins compilation
-dm me on discord @Mizaru#0112 if there's a skin not listed here yet that I need to add (provide screenshot please)
+dm me on discord @Mizaru#0112 or in chat @gabe_owo if there's a skin not listed here yet that I need to add. 
 
 
 
