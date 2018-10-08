@@ -12,7 +12,7 @@ Click on the skin name to download.
 # [- aprx tourney](http://www.mediafire.com/file/hi3prx2f16b9qpq/-_aprx_tourney.osk/file)
 ![](https://osu.ppy.sh/ss/11922750)
 
-# [- MonkoYaong](https://www.dropbox.com/s/2dihhjeyj0ix74m/-%20MonkoYaong.osk?dl=0)
+# [- MonkoYaong](https://www.dropbox.com/s/l9lxw92pzvz9njz/-%20MonkoYaong.osk?dl=0)
 ![](https://osu.ppy.sh/ss/11922740)
 
 # [-+ Seoul v9 Personal Skin](https://snowy.s-ul.eu/jcWhn5E5)
