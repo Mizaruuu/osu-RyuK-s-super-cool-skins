@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- MonkoYaong](https://www.dropbox.com/s/2dihhjeyj0ix74m/-%20MonkoYaong.osk?dl=0)
+![](https://osu.ppy.sh/ss/11922740)
+
 # [-+ Seoul v9 Personal Skin](https://snowy.s-ul.eu/jcWhn5E5)
 ![](https://osu.ppy.sh/ss/11914073)
 
