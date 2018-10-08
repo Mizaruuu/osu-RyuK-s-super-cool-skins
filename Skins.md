@@ -13,7 +13,7 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/11922750)
 
 # [- MonkoYaong](https://www.dropbox.com/s/l9lxw92pzvz9njz/-%20MonkoYaong.osk?dl=0)
-![](https://osu.ppy.sh/ss/11922740)
+![](https://osu.ppy.sh/ss/11923433)
 
 # [-+ Seoul v9 Personal Skin](https://snowy.s-ul.eu/jcWhn5E5)
 ![](https://osu.ppy.sh/ss/11914073)
