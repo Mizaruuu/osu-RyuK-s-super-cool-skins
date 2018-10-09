@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [Clarity](https://puu.sh/B6VRo/36012691a3.osk)
+![](https://osu.ppy.sh/ss/11928776)
+
 # [- aprx tourney 2](http://www.mediafire.com/file/450m0vu292rcilr/-_aprx_tourney_2.osk/file)
 ![](https://osu.ppy.sh/ss/11922758)
 
