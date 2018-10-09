@@ -105,7 +105,7 @@ Click on the skin name to download.
 # [Rosmurf](https://mizaru.s-ul.eu/8GLUUTrm) 
 ![](https://osu.ppy.sh/ss/11775806)
 
-# [SameSkinButNoRingHitCirclesWeirdName](https://mizaru.s-ul.eu/8GLUUTrm)
+# [SameSkinButNoRingHitCirclesWeirdName](https://puu.sh/wp9Lh/b7e879fb75.osk)
 ![](https://osu.ppy.sh/ss/11775808)
 
 # [おやすみ 『goodnight』](https://mizaru.s-ul.eu/iOc2vs3v) 
