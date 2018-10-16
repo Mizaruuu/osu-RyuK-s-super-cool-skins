@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- # ! 草壁 _kusakabe](https://mizaru.s-ul.eu/9PWkyMQc) 
+![](https://osu.ppy.sh/ss/11838360)
+
 # [azer8midnight chitanda edit](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
 
@@ -38,9 +41,6 @@ Click on the skin name to download.
 
 # [- dddddv2 -](https://www.dropbox.com/s/hsrm9vgkoksu61m/-_ddddd_v2_-.osk?dl=0) 
 ![](https://osu.ppy.sh/ss/11860986)
-
-# - # ! 草壁 _kusakabe - (not finished yet so no download) 
-![](https://osu.ppy.sh/ss/11838360)
 
 # [- Aesthetic RyuK Edit -](https://www.dropbox.com/s/7cntagrm98c8znj/-%20Aesthetic%20RyuK%20Edit%20-.osk?dl=0) 
 ![](https://osu.ppy.sh/ss/11813238)
