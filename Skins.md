@@ -9,7 +9,10 @@ Click on the skin name to download.
 # [- # ! 草壁 _kusakabe](https://mizaru.s-ul.eu/9PWkyMQc) 
 ![](https://osu.ppy.sh/ss/11838360)
 
-# [azer8midnight chitanda edit](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
+# [azer8midnight chitanda edit with followpoints](http://www.mediafire.com/file/kcwyybwhdlr23n6/%2523azer8midnight.osk/file)
+![](https://osu.ppy.sh/ss/11972964)
+
+# [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
 
 # [azer8midnight edit](https://mizaru.s-ul.eu/D46csUhY)
