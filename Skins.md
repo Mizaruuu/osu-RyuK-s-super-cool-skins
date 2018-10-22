@@ -6,7 +6,7 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [- dumi aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
+# [- dumii aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12004410)
 
 # [- # ! 草壁 _kusakabe](https://mizaru.s-ul.eu/9PWkyMQc) 
