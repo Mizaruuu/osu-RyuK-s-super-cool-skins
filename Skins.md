@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [#azr8redblack](https://mizaru.s-ul.eu/mgkvXNjz)
+![](https://osu.ppy.sh/ss/12166708)
+
 # [- azr8 old grey -](https://www.dropbox.com/s/v32pu409tcfwm1p/-%20azr8%20old%20grey%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12165830)
 
