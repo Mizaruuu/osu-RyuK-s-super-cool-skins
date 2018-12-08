@@ -6,6 +6,9 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [hey dt (purple version)](https://urwomb.s-ul.eu/1SbbRSUz)
+![](screenshot soontm)
+
 # [Mizaru v4 [azr8emilia]](https://mizaru.s-ul.eu/qF60gSno)
 ![](https://osu.ppy.sh/ss/12175233)
 
