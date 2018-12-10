@@ -6,7 +6,7 @@ dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [EneREMAKEhalfy (Reimu)](https://urwomb.s-ul.eu/1SbbRSUz)
+# [EneREMAKEhalfy (Reimu)](https://mizaru.s-ul.eu/5IxB2vnq)
 ![](https://i.imgur.com/CZMFDoo.png)
 
 # [hey dt (purple version)](https://urwomb.s-ul.eu/1SbbRSUz)
