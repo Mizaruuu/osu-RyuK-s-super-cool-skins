@@ -2,6 +2,9 @@
 dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a skin not listed here yet that I need to add. 
 
 
+HP Bar:
+# [Click Me](https://i.imgur.com/dh79Bwo.png)
+![](https://i.imgur.com/dh79Bwo.png)
 
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
