@@ -13,7 +13,7 @@ Click on the skin name to download.
 ![](https://i.imgur.com/ZoeuiYA.gifv)
 
 # [EneREMAKEhalfy (Reimu)](https://mizaru.s-ul.eu/5IxB2vnq)
-![](https://i.imgur.com/CZMFDoo.png)
+![](https://i.imgur.com/xJ6gfvW.png)
 
 # [hey dt (purple version)](https://urwomb.s-ul.eu/1SbbRSUz)
 ![](screenshot soontm)
