@@ -16,7 +16,7 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/12439993)
 
 # [hey dt (purple version)](https://urwomb.s-ul.eu/1SbbRSUz)
-![](screenshot soontm)
+![](https://osu.ppy.sh/ss/12439996)
 
 # [Mizaru v4 [azr8emilia]](https://mizaru.s-ul.eu/qF60gSno)
 ![](https://osu.ppy.sh/ss/12175233)
