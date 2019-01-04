@@ -9,6 +9,9 @@ HP Bar:
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [colorbog (Informous)](https://www.dropbox.com/s/lz844qldrsumnfm/-%20colorbog.osk?dl=0Other)
+![](https://i.imgur.com/ZoeuiYA.gifv)
+
 # [EneREMAKEhalfy (Reimu)](https://mizaru.s-ul.eu/5IxB2vnq)
 ![](https://i.imgur.com/CZMFDoo.png)
 
