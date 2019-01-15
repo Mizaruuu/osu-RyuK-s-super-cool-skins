@@ -15,7 +15,7 @@ Click on the skin name to download.
 # [EneREMAKEhalfy (Reimu)](https://mizaru.s-ul.eu/5IxB2vnq)
 ![](https://osu.ppy.sh/ss/12439993)
 
-# [hey dt (purple version)](https://urwomb.s-ul.eu/1SbbRSUz)
+# [hey dt (purple version)](https://puu.sh/Cqn5a/301ad0368c.osk)
 ![](https://osu.ppy.sh/ss/12439996)
 
 # [Mizaru v4 [azr8emilia]](https://mizaru.s-ul.eu/qF60gSno)
