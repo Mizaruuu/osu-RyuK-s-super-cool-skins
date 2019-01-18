@@ -9,6 +9,9 @@ HP Bar:
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Dumii and Gayz ](https://snowy.s-ul.eu/LETA1PMZ)
+![](https://osu.ppy.sh/ss/12523392)
+
 # [- colorbog (Informous)](https://snowy.s-ul.eu/399adO31)
 ![](https://osu.ppy.sh/ss/12440021)
 
