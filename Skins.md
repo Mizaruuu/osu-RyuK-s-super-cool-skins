@@ -1,12 +1,10 @@
 # RyuK super rad main skins compilation
 dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a skin not listed here yet that I need to add. 
+Click on the skin name to download.
 
-
-HP Bar:
-# [Click Me](https://i.imgur.com/dh79Bwo.png)
+# [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
-Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
 # [Rohulk 4.0](https://www.mediafire.com/file/4j97atvd6n3n343/Rohulk_4.0.osk/file)
