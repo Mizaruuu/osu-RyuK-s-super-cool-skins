@@ -9,6 +9,9 @@ HP Bar:
 Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [Rohulk 4.0](https://www.mediafire.com/file/4j97atvd6n3n343/Rohulk_4.0.osk/file)
+![](https://osu.ppy.sh/ss/12536087)
+
 # [Karthy 4.1](https://snowy.s-ul.eu/uAP7rpGJ)
 ![](https://osu.ppy.sh/ss/12536039)
 
