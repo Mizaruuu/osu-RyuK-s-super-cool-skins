@@ -8,7 +8,7 @@ Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
 # [idke 1.1](https://www.mediafire.com/file/gmwlpsy9pb4sbp4/idke_1.1.osk/file)
-![]https://osu.ppy.sh/ss/12536245)
+![](https://osu.ppy.sh/ss/12536245)
 
 # [Rohulk 4.0](https://www.mediafire.com/file/4j97atvd6n3n343/Rohulk_4.0.osk/file)
 ![](https://osu.ppy.sh/ss/12536087)
