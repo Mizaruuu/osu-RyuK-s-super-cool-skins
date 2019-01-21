@@ -8,7 +8,7 @@ Click on the skin name to download.
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
 # [- Dumii and Gayz](https://snowy.s-ul.eu/YDR5redY)
-![](https://osu.ppy.sh/ss/12536312)
+![](https://osu.ppy.sh/ss/12543086)
 
 # [idke 1.1](https://www.mediafire.com/file/gmwlpsy9pb4sbp4/idke_1.1.osk/file)
 ![](https://osu.ppy.sh/ss/12536245)
