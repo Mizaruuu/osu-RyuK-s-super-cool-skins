@@ -7,6 +7,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [Linces Rejunte Toushi Edit](https://www.mediafire.com/file/tbaexes0s80c4xs/Linces_Rejunte_Toushi_Edit.osk/file)
+![](https://osu.ppy.sh/ss/12554355)
+
 # [- Selyu RyuK edit](https://snowy.s-ul.eu/v9iKIFOt)
 ![](https://osu.ppy.sh/ss/12554355)
 
