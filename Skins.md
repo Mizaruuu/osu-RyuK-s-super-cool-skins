@@ -10,8 +10,8 @@ Click on the skin name to download.
 # [elohere](https://www.mediafire.com/file/xx6bx1q45rjtc5b/elohere.osk/file)
 ![](https://osu.ppy.sh/ss/12554422)
 
-# [Linces Rejunte Toushi Edit](https://www.mediafire.com/file/tbaexes0s80c4xs/Linces_Rejunte_Toushi_Edit.osk/file)
-![](https://osu.ppy.sh/ss/12554401)
+# [Linces Rejunte Toushi Edit](https://www.mediafire.com/file/1wijnv20xar4oq7/Linces_Rejunte_Toushi_Edit.osk/file)
+![](https://osu.ppy.sh/ss/125544421)
 
 # [- Selyu RyuK edit](https://snowy.s-ul.eu/v9iKIFOt)
 ![](https://osu.ppy.sh/ss/12554355)
