@@ -7,6 +7,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- morgan](https://snowy.s-ul.eu/WZb002pF)
+![](https://osu.ppy.sh/ss/12554288)
+
 # [Gotta Aim Fast Skin](https://snowy.s-ul.eu/Rt9fcdaQ)
 ![](https://osu.ppy.sh/ss/12543099)
 
