@@ -7,6 +7,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Selyu RyuK edit](https://snowy.s-ul.eu/v9iKIFOt)
+![](https://osu.ppy.sh/ss/12554355)
+
 # [- morgan](https://snowy.s-ul.eu/WZb002pF)
 ![](https://osu.ppy.sh/ss/12554288)
 
