@@ -11,7 +11,7 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/12554422)
 
 # [Linces Rejunte Toushi Edit](https://www.mediafire.com/file/1wijnv20xar4oq7/Linces_Rejunte_Toushi_Edit.osk/file)
-![](https://osu.ppy.sh/ss/125544421)
+![](https://osu.ppy.sh/ss/12554442)
 
 # [- Selyu RyuK edit](https://snowy.s-ul.eu/v9iKIFOt)
 ![](https://osu.ppy.sh/ss/12554355)
