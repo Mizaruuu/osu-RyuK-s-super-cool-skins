@@ -7,7 +7,7 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [- Varvalian](ttps://snowy.s-ul.eu/w4lNMSyD)
+# [- Varvalian](https://snowy.s-ul.eu/w4lNMSyD)
 ![](https://osu.ppy.sh/ss/12559788)
 
 # [elohere](https://www.mediafire.com/file/xx6bx1q45rjtc5b/elohere.osk/file)
