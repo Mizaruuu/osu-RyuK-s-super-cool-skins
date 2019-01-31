@@ -7,7 +7,7 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [#Azer+Emilia+2018](https://snowy.s-ul.eu/I64jnKlj)
+# [#Azer+Emilia+2018](https://snowy.s-ul.eu/kcXBa3TJ)
 ![](https://osu.ppy.sh/ss/12601898)
 
 # [- Varvalian](https://snowy.s-ul.eu/w4lNMSyD)
