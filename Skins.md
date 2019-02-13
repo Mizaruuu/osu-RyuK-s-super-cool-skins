@@ -1,5 +1,6 @@
 # RyuK super rad main skins compilation
-dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a skin not listed here yet that I need to add. 
+In chat ask @gabeosu / @snowedcoffee if there's a skin not listed here yet that I need to add.
+
 Click on the skin name to download.
 
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
