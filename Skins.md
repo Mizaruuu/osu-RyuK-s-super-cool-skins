@@ -8,7 +8,7 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# - Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
+# [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
 ![](https://osu.ppy.sh/ss/12696301)
 
 # [#Azer+Emilia+2018](https://snowy.s-ul.eu/0Z8exkBQ)
