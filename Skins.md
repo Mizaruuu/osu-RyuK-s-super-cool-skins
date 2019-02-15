@@ -8,6 +8,24 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- ddddd aireu -](https://snowy.s-ul.eu/AnJS9tcl) 
+![](https://osu.ppy.sh/ss/12697828)
+
+# [- ddddd sliderends -](https://snowy.s-ul.eu/pebxOBcn) 
+![](https://osu.ppy.sh/ss/12697813)
+
+# [- ddddd orginal white -](https://snowy.s-ul.eu/P3P7ZzNu) 
+![](https://osu.ppy.sh/ss/12697816)
+
+# [- ddddd orginal -](https://snowy.s-ul.eu/tDytFd3j) 
+![](https://osu.ppy.sh/ss/12697821)
+
+# [- dddddv2 -](https://www.dropbox.com/s/hsrm9vgkoksu61m/-_ddddd_v2_-.osk?dl=0) 
+![](https://osu.ppy.sh/ss/11860986)
+
+# [- ddddd -](https://mizaru.s-ul.eu/OWIOcRTr) 
+![](https://osu.ppy.sh/ss/11775760)
+
 # [- Mathi Remake -](https://snowy.s-ul.eu/1qYnY8eT)
 ![](https://osu.ppy.sh/ss/12697652)
 
