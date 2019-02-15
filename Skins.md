@@ -38,9 +38,6 @@ Click on the skin name to download.
 # [- Varvalian](https://snowy.s-ul.eu/w4lNMSyD)
 ![](https://osu.ppy.sh/ss/12559788)
 
-# [elohere](https://www.mediafire.com/file/xx6bx1q45rjtc5b/elohere.osk/file)
-![](https://osu.ppy.sh/ss/12554422)
-
 # [Linces Rejunte Toushi Edit](https://www.mediafire.com/file/1wijnv20xar4oq7/Linces_Rejunte_Toushi_Edit.osk/file)
 ![](https://osu.ppy.sh/ss/12554442)
 
