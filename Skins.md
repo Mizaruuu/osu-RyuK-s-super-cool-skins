@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [-+ Seoul v9 -red trail2](https://andred.s-ul.eu/9JHVdJ2v) 
+![](https://osu.ppy.sh/ss/12697892)
+
 # [- ddddd aireu -](https://snowy.s-ul.eu/AnJS9tcl) 
 ![](https://osu.ppy.sh/ss/12697828)
 
