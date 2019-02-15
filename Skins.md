@@ -8,8 +8,8 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [-+ Seoul v9 -red trail2](https://andred.s-ul.eu/9JHVdJ2v) 
-![](https://osu.ppy.sh/ss/12697892)
+# [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
+![](https://osu.ppy.sh/ss/12696301)
 
 # [- ddddd aireu -](https://snowy.s-ul.eu/AnJS9tcl) 
 ![](https://osu.ppy.sh/ss/12697828)
@@ -29,11 +29,11 @@ Click on the skin name to download.
 # [- ddddd -](https://mizaru.s-ul.eu/OWIOcRTr) 
 ![](https://osu.ppy.sh/ss/11775760)
 
+# [-+ Seoul v9 -red trail2](https://andred.s-ul.eu/9JHVdJ2v) 
+![](https://osu.ppy.sh/ss/12697892)
+
 # [- Mathi Remake -](https://snowy.s-ul.eu/1qYnY8eT)
 ![](https://osu.ppy.sh/ss/12697652)
-
-# [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
-![](https://osu.ppy.sh/ss/12696301)
 
 # [#Azer+Emilia+2018](https://snowy.s-ul.eu/0Z8exkBQ)
 ![](https://osu.ppy.sh/ss/12601898)
