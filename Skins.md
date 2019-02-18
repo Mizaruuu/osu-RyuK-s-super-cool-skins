@@ -11,7 +11,10 @@ Click on the skin name to download.
 # [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
 ![](https://osu.ppy.sh/ss/12696301)
 
-# [- ddddd aireu -](https://snowy.s-ul.eu/AnJS9tcl) 
+# [idke 1.1](https://snowy.s-ul.eu/h34ojDYu)
+![](https://osu.ppy.sh/ss/12536245)
+
+# [- ddddd aireuu -](https://snowy.s-ul.eu/1ByBQwhc) 
 ![](https://osu.ppy.sh/ss/12697828)
 
 # [- ddddd sliderends -](https://snowy.s-ul.eu/pebxOBcn) 
@@ -55,9 +58,6 @@ Click on the skin name to download.
 
 # [- Dumii and Gayz](https://snowy.s-ul.eu/YDR5redY)
 ![](https://osu.ppy.sh/ss/12543086)
-
-# [idke 1.1](https://www.mediafire.com/file/gmwlpsy9pb4sbp4/idke_1.1.osk/file)
-![](https://osu.ppy.sh/ss/12536245)
 
 # [Rohulk 4.0](https://www.mediafire.com/file/4j97atvd6n3n343/Rohulk_4.0.osk/file)
 ![](https://osu.ppy.sh/ss/12536087)
