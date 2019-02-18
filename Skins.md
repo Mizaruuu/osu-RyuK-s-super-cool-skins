@@ -8,6 +8,12 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [MonkoYaongv2](https://fastmanmonko.s-ul.eu/O97sUb0P)
+![](https://osu.ppy.sh/ss/12722855)
+
+# [Bubbleman edit](https://snowy.s-ul.eu/QNfu6qI7)
+![](https://osu.ppy.sh/ss/12722835)
+
 # [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
 ![](https://osu.ppy.sh/ss/12696301)
 
