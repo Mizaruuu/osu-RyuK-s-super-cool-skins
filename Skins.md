@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [idke+colour+opaque](http://puu.sh/CXeq5/a22917787d.osk)
+![](https://osu.ppy.sh/ss/12833768)
+
 # [MonkoYaongv2](https://fastmanmonko.s-ul.eu/O97sUb0P)
 ![](https://osu.ppy.sh/ss/12722855)
 
