@@ -8,8 +8,8 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [- azr8 old grey -](https://www.dropbox.com/s/v32pu409tcfwm1p/-%20azr8%20old%20grey%20-.osk?dl=0)
-![](https://osu.ppy.sh/ss/12165830)
+# [#azr8redblack](https://mizaru.s-ul.eu/mgkvXNjz)
+![](https://osu.ppy.sh/ss/12166708)
 
 # [#Azer+Emilia+2018](https://snowy.s-ul.eu/0Z8exkBQ)
 ![](https://osu.ppy.sh/ss/12601898)
@@ -31,6 +31,9 @@ Click on the skin name to download.
 
 # [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
 ![](https://osu.ppy.sh/ss/12696301)
+
+# [- azr8 old grey -](https://www.dropbox.com/s/v32pu409tcfwm1p/-%20azr8%20old%20grey%20-.osk?dl=0)
+![](https://osu.ppy.sh/ss/12165830)
 
 # [idke 1.1](https://snowy.s-ul.eu/h34ojDYu)
 ![](https://osu.ppy.sh/ss/12536245)
@@ -94,9 +97,6 @@ Click on the skin name to download.
 
 # [Mizaru v4 [azr8emilia]](https://mizaru.s-ul.eu/qF60gSno)
 ![](https://osu.ppy.sh/ss/12175233)
-
-# [#azr8redblack](https://mizaru.s-ul.eu/mgkvXNjz)
-![](https://osu.ppy.sh/ss/12166708)
 
 # [- Dumii and Kyle -](https://www.dropbox.com/s/ifv58ossv30aqc9/-%20Dumii%20and%20Kyle%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12097341)
