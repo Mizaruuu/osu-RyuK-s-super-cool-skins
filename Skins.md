@@ -18,10 +18,10 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/12847045)
 
 # [MonkoYaong+DT](http://puu.sh/CYbyS/6aef2917b6.osk)
-![](https://osu.ppy.sh/ss/12847241)
+![](https://osu.ppy.sh/ss/12847056)
 
 # [MonkoYaong+new](http://puu.sh/CYbzR/c48ecda717.osk)
-![](https://osu.ppy.sh/ss/12847056)
+![](https://osu.ppy.sh/ss/12847241)
 
 # [idke+colour+opaque](http://puu.sh/CXeq5/a22917787d.osk)
 ![](https://osu.ppy.sh/ss/12833768)
