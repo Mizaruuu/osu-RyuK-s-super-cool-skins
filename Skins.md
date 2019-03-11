@@ -134,9 +134,6 @@ Click on the skin name to download.
 # [- Kyle](https://mizaru.s-ul.eu/8C4Ava72)
 ![](https://osu.ppy.sh/ss/11866753)
 
-# [- dddddv2 -](https://www.dropbox.com/s/hsrm9vgkoksu61m/-_ddddd_v2_-.osk?dl=0) 
-![](https://osu.ppy.sh/ss/11860986)
-
 # [- Aesthetic RyuK Edit -](https://www.dropbox.com/s/7cntagrm98c8znj/-%20Aesthetic%20RyuK%20Edit%20-.osk?dl=0) 
 ![](https://osu.ppy.sh/ss/11813238)
 
@@ -169,9 +166,6 @@ Click on the skin name to download.
 
 # [#azer8dusk azer(notazer8)edit](https://mizaru.s-ul.eu/rnLtuSZj) 
 ![](https://osu.ppy.sh/ss/11775757)
-
-# [-_ddddd_-_](https://mizaru.s-ul.eu/OWIOcRTr) 
-![](https://osu.ppy.sh/ss/11775760)
 
 # [-+ Seoul v9 Personal Skin V3](https://mizaru.s-ul.eu/nwGW0MSE) 
 ![](https://osu.ppy.sh/ss/11775764)
