@@ -14,10 +14,13 @@ Click on the skin name to download.
 # [#Azer+Emilia+2018](https://snowy.s-ul.eu/0Z8exkBQ)
 ![](https://osu.ppy.sh/ss/12601898)
 
-# [MonkoYaongv2+new](http://puu.sh/CYaay/f124eac0bb.osk)
+# [MonkoYaongv2+new](http://puu.sh/CYbAs/ac60c6bb48.osk)
 ![](https://osu.ppy.sh/ss/12847045)
 
-# [MonkoYaong+new](http://puu.sh/CYa9B/4626a2d828.osk)
+# [MonkoYaong+DT](http://puu.sh/CYbyS/6aef2917b6.osk)
+![](https://osu.ppy.sh/ss/12847241)
+
+# [MonkoYaong+new](http://puu.sh/CYbzR/c48ecda717.osk)
 ![](https://osu.ppy.sh/ss/12847056)
 
 # [idke+colour+opaque](http://puu.sh/CXeq5/a22917787d.osk)
