@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- colorbog (Informous)](https://snowy.s-ul.eu/399adO31)
+![](https://osu.ppy.sh/ss/12440021)
+
 # [#azr8redblack](https://mizaru.s-ul.eu/mgkvXNjz)
 ![](https://osu.ppy.sh/ss/12166708)
 
@@ -88,9 +91,6 @@ Click on the skin name to download.
 
 # [Karthy 4.1](https://snowy.s-ul.eu/uAP7rpGJ)
 ![](https://osu.ppy.sh/ss/12536039)
-
-# [- colorbog (Informous)](https://snowy.s-ul.eu/399adO31)
-![](https://osu.ppy.sh/ss/12440021)
 
 # [EneREMAKEhalfy (Reimu)](https://mizaru.s-ul.eu/5IxB2vnq)
 ![](https://osu.ppy.sh/ss/12439993)
