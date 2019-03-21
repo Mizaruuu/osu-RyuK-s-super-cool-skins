@@ -8,7 +8,7 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [#azr8new](https://s.put.re/wAGHeDbD.osk)
+# [#azr8new](http://puu.sh/D322X/08aba42766.osk)
 ![](https://osu.ppy.sh/ss/12896522)
 
 # [- colorbog (Informous)](https://snowy.s-ul.eu/399adO31)
