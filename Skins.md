@@ -8,7 +8,7 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
-# [tranquil+sublimity](http://puu.sh/D5qzk/35412b99f8.osk)
+# [tranquil+sublimity (made by cieu (@sagwayaya) + megatron is bad (@silence_037))](http://puu.sh/D5qzk/35412b99f8.osk)
 ![](https://osu.ppy.sh/ss/12931735)
 
 # [#azr8new](http://puu.sh/D322X/08aba42766.osk)
