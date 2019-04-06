@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- Aesthetic Ryuk Edit v2 -](https://www.dropbox.com/s/c0a5799ffr1ytzq/-%20Aesthetic%20RyuK%20Edit%20v2%20-.osk?dl=0)
+![](https://osu.ppy.sh/ss/12991191)
+
 # [tranquil+sublimity (made by cieu (@sagwayaya) + megatron is bad (@silence_037))](http://puu.sh/D5qzk/35412b99f8.osk)
 ![](https://osu.ppy.sh/ss/12931735)
 
