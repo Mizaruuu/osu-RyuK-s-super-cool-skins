@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- colorbog but ryan](https://www.dropbox.com/s/p3uk3utq6bp3e8l/-%20colorbog%20but%20ryan.osk?dl=0)
+![](https://osu.ppy.sh/ss/13018096)
+
 # [- Aesthetic Ryuk Edit v2 -](https://www.dropbox.com/s/c0a5799ffr1ytzq/-%20Aesthetic%20RyuK%20Edit%20v2%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12991191)
 
