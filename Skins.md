@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- + morgan final](https://www.dropbox.com/s/n2h9amk8emolsfu/-%20%2B%20morgan%20final.osk?dl=0)
+![](https://osu.ppy.sh/ss/13028819)
+
 # [- colorbog but ryan](https://www.dropbox.com/s/icnzpnj37qwxbif/-%20colorbog%20but%20ryan.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13018096)
 
