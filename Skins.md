@@ -6,10 +6,10 @@ Click on the skin name to download.
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
-# Some of the skins RyuK uses might be private or unfinished and may not be listed
+# Some of the skins RyuK uses might be private or unfinished and may not be listed, if it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
 # [- varvalian but ryan](https://waa.ai/orRw)
-![](https://osu.ppy.sh/ss/13046319)
+![](https://osu.ppy.sh/ss/13047136)
 
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13029693)
