@@ -8,6 +8,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed
 
+# [- varvalian but ryan](https://www.dropbox.com/s/o4exkyqsl18u4td/-%20varvalian%20but%20ryan.osk?dl=0)
+![](https://osu.ppy.sh/ss/13045950)
+
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13029693)
 
@@ -82,9 +85,6 @@ Click on the skin name to download.
 
 # [- Mathi Remake -](https://snowy.s-ul.eu/1qYnY8eT)
 ![](https://osu.ppy.sh/ss/12697652)
-
-# [- Varvalian](https://snowy.s-ul.eu/w4lNMSyD)
-![](https://osu.ppy.sh/ss/12559788)
 
 # [Linces Rejunte Toushi Edit](https://www.mediafire.com/file/1wijnv20xar4oq7/Linces_Rejunte_Toushi_Edit.osk/file)
 ![](https://osu.ppy.sh/ss/12554442)
