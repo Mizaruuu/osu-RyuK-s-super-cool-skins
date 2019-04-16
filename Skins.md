@@ -1,5 +1,4 @@
 # RyuK super rad main skins compilation
-In chat ask @gabeosu / @snowedcoffee if there's a skin not listed here yet that I need to add.
 
 Click on the skin name to download.
 
