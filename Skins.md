@@ -16,7 +16,7 @@ Click on the skin name to download.
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13029693)
 
-# [- colorbog but ryan](https://www.dropbox.com/s/0rs8la18r9mzlhy/-%20colorbog%20but%20ryan.osk?dl=0)
+# [- colorbog but ryan](https://www.dropbox.com/s/nk2snsrza4c6l0w/-%20colorbog%20but%20ryan.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13018096)
 
 # [- Aesthetic Ryuk Edit v2 -](https://www.dropbox.com/s/c0a5799ffr1ytzq/-%20Aesthetic%20RyuK%20Edit%20v2%20-.osk?dl=0)
