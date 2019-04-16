@@ -8,7 +8,7 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed, if it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
-# [- varvalian but ryan](https://waa.ai/orRw)
+# [- varvalian but ryan](https://waa.ai/orQV)
 ![](https://osu.ppy.sh/ss/13047136)
 
 # [- + morgan final](https://www.dropbox.com/s/fm1v0p1ndxepkyv/-%20%2B%20morgan%20final.osk?dl=0)
