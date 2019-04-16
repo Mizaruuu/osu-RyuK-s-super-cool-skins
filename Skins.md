@@ -10,6 +10,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed, if it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- Dumii and Gayz v2](https://www.dropbox.com/s/szi3ftrknroonsv/-%20Dumii%20and%20Gayz%20v2.osk?dl=0)
+![](https://osu.ppy.sh/ss/13052411)
+
 # [- varvalian but ryan](https://waa.ai/orQV)
 ![](https://osu.ppy.sh/ss/13047136)
 
@@ -54,9 +57,6 @@ Click on the skin name to download.
 
 # [Bubbleman edit](https://snowy.s-ul.eu/QNfu6qI7)
 ![](https://osu.ppy.sh/ss/12722835)
-
-# [- Dumii and Gayz v2](https://snowy.s-ul.eu/623BqQn0)
-![](https://osu.ppy.sh/ss/12696301)
 
 # [- azr8 old grey -](https://www.dropbox.com/s/v32pu409tcfwm1p/-%20azr8%20old%20grey%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/12165830)
