@@ -46,11 +46,11 @@ Click on the skin name to download.
 # [MonkoYaong+new](http://puu.sh/CYbzR/c48ecda717.osk)
 ![](https://osu.ppy.sh/ss/12847241)
 
-# [idke+colour+opaque](http://puu.sh/CXeq5/a22917787d.osk)
-![](https://osu.ppy.sh/ss/12833768)
-
 # [MonkoYaongv2](https://fastmanmonko.s-ul.eu/O97sUb0P)
 ![](https://osu.ppy.sh/ss/12722855)
+
+# [idke+colour+opaque](http://puu.sh/CXeq5/a22917787d.osk)
+![](https://osu.ppy.sh/ss/12833768)
 
 # [Bubbleman edit](https://snowy.s-ul.eu/QNfu6qI7)
 ![](https://osu.ppy.sh/ss/12722835)
