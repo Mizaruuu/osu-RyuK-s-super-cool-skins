@@ -6,6 +6,8 @@ Click on the skin name to download.
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
+# If a link is down it means that it is being updated, just wait a few minutes. 
+
 # Some of the skins RyuK uses might be private or unfinished and may not be listed, if it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
 # [- varvalian but ryan](https://waa.ai/orQV)
