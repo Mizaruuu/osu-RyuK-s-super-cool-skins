@@ -1,7 +1,5 @@
 # RyuK super rad main skins compilation
 
-Click on the skin name to download.
-
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
