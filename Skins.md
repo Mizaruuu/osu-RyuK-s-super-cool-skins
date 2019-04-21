@@ -7,7 +7,9 @@ Click on the skin name to download.
 
 # If a link is down it means that it is being updated, just wait a few minutes. 
 
-# Some of the skins RyuK uses might be private or unfinished and may not be listed, if it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
+# Some of the skins RyuK uses might be private or unfinished and may not be listed, 
+
+# In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
 # [#azr8newblue](http://puu.sh/DhXHL/bece57cc77.osk)
 ![](https://osu.ppy.sh/ss/13081279)
