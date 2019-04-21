@@ -9,6 +9,9 @@ Click on the skin name to download.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed, if it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [#azr8newblue](http://puu.sh/DhXHL/bece57cc77.osk)
+![](https://osu.ppy.sh/ss/13081279)
+
 # [- Dumii and Gayz v2](https://www.dropbox.com/s/szi3ftrknroonsv/-%20Dumii%20and%20Gayz%20v2.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13052411)
 
