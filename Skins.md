@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- Dumii and Gayz v3](https://waa.ai/XzKA)
+![](https://osu.ppy.sh/ss/13108288)
+
 # [#azr8newblue](http://puu.sh/DhXHL/bece57cc77.osk)
 ![](https://osu.ppy.sh/ss/13081279)
 
