@@ -9,7 +9,7 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
-# [azr8emilia+v2](http://puu.sh/Dmhd7/46823588f4.osk)
+# [azr8emilia+v2](https://mizaru2.s-ul.eu/eOa4OKnK)
 ![](https://osu.ppy.sh/ss/13131437)
 
 # [- Dumii and Gayz v3](https://waa.ai/XzKA)
