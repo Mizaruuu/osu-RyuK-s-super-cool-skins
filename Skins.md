@@ -198,9 +198,6 @@
 # [- MathiTuna](https://mizaru.s-ul.eu/AVXkW7U9) 
 ![](https://osu.ppy.sh/ss/11775749)
 
-# [- Selyu v2.3](https://mizaru.s-ul.eu/YUSHPfVw)
-![](https://osu.ppy.sh/ss/11775755)
-
 # [#azer8dusk azer(notazer8)edit](https://mizaru.s-ul.eu/rnLtuSZj) 
 ![](https://osu.ppy.sh/ss/11775757)
 
