@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [owotuna ikanyai](https://mizaru2.s-ul.eu/8vNpkUFV)
+![](https://osu.ppy.sh/ss/13314129)
+
 # [- + morgan final but kyle](https://www.dropbox.com/s/kq8a7mr72jzu4o4/-%20%2B%20morgan%20final%20but%20kyle.osk?dl=0)
 ![](https://osu.ppy.sh/ss/13174934)
 
