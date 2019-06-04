@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [crai](https://mizaru2.s-ul.eu/wvuKfnkL)
+![](https://osu.ppy.sh/ss/13314142)
+
 # [owotuna ikanyai](https://mizaru2.s-ul.eu/8vNpkUFV)
 ![](https://osu.ppy.sh/ss/13314129)
 
