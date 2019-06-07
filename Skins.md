@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- ddddd ryuk -](http://puu.sh/DD1aK/53a5aa7cc4.osk)
+![](https://osu.ppy.sh/ss/13333232)
+
 # [- Varvalian ryan edit](http://puu.sh/DBGEa/ff1e7599d5.osk)
 ![](https://osu.ppy.sh/ss/13317973)
 
