@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [XII Karalis Edit](http://puu.sh/DFB0K/faeb561091.osk)
+![](https://osu.ppy.sh/ss/13374078)
+
 # [- ddddd ryuk -](http://puu.sh/DD1aK/53a5aa7cc4.osk)
 ![](https://osu.ppy.sh/ss/13333232)
 
