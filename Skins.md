@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [DA BIMBONG MAKEOVER1!!1!!1](https://mizaruyea.s-ul.eu/xZ6k2F0I)
+![](https://osu.ppy.sh/ss/13404636/fee5)
+
 # [XII Karalis Edit](http://puu.sh/DFB0K/faeb561091.osk)
 ![](https://osu.ppy.sh/ss/13374078)
 
