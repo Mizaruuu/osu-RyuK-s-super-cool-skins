@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- owotuna ryan blue](http://puu.sh/DMlzy/bd8f5f83b4.osk)
+![](https://osu.ppy.sh/ss/13447904/a765)
+
 # [DA BIMBONG MAKEOVER1!!1!!1](https://mizaruyea.s-ul.eu/xZ6k2F0I)
 ![](https://osu.ppy.sh/ss/13404636/fee5)
 
