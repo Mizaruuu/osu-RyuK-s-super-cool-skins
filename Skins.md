@@ -12,6 +12,15 @@
 # [- azr8](https://mizaruyea.s-ul.eu/Qt8mKVop)
 ![](https://i.imgur.com/teld9tV.png)
 
+# [- dumii ryan edit](http://puu.sh/DWnVu/fd303fb063.osk)
+![](https://puu.sh/DWnLw/68c91a0482.jpg)
+
+# [- skill ryan edit](http://puu.sh/DWnPo/f48fda22c5.osk)
+![](https://puu.sh/DWnLb/a771675184.jpg)
+
+# [- vaxei ryan edit](http://puu.sh/DWnMD/3efa7ff98d.osk)
+![](https://puu.sh/DWnKJ/bef7646df1.jpg)
+
 # [- owotuna ryan blue](http://puu.sh/DMlzy/bd8f5f83b4.osk)
 ![](https://osu.ppy.sh/ss/13447904/a765)
 
