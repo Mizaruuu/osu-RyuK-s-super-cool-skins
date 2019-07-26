@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- Komori - RyuK](https://www.dropbox.com/s/7klqe06pjqgr4bg/Komori%20-%20Ryugumink%20Ryuk%27s%20Style%28Megumin%20-%20Eihi%29.osk?dl=0)
+![](https://i.imgur.com/nJNFtax.png)
+
 # [- azr8](https://mizaruyea.s-ul.eu/Qt8mKVop)
 ![](https://i.imgur.com/teld9tV.png)
 
