@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
+![](https://osu.ppy.sh/ss/13790768/c414)
+
 # [- 404 ryan edit](http://puu.sh/E0DUe/99b7a31d4a.osk)
 ![](https://osu.ppy.sh/ss/13631335/a8bf)
 
