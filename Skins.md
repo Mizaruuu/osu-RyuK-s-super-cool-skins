@@ -9,6 +9,8 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [The Recent Skin](https://www.dropbox.com/s/12z2nid320y26hs/Rakyero%20Mix%20Plus%20v1.0.osk?dl=0)
+
 # [- Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://osu.ppy.sh/ss/13790768/c414)
 
