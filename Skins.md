@@ -9,10 +9,14 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
-# [- New Dumii Edit -](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
+# [- tko -](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
+![](https://osu.ppy.sh/ss/14118236/d3b6)
 
+# [- New Dumii Edit -](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
+![](https://osu.ppy.sh/ss/14118234/414e)
 
 # [The Recent Skin](https://www.dropbox.com/s/12z2nid320y26hs/Rakyero%20Mix%20Plus%20v1.0.osk?dl=0)
+![](https://osu.ppy.sh/ss/14118232/76fc)
 
 # [- Delis Except It Is Varvalian](https://mizaruyea.s-ul.eu/5lSwk7ay)
 ![](https://osu.ppy.sh/ss/13790768/c414)
