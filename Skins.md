@@ -10,7 +10,7 @@
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
 # [- tko -](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
-![](https://osu.ppy.sh/ss/14118236/d3b6)
+![](https://osu.ppy.sh/ss/14143466/ad8f)
 
 # [- New Dumii Edit -](https://www.dropbox.com/s/1suw8i740ng6krv/-%2BAesthetic%201.3.9.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14118234/414e)
