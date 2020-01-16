@@ -10,7 +10,7 @@
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
 # [Rafis Generic DT skin](https://www.dropbox.com/s/mj8snq3xz4rx15y/Rafis%20Generic%20DT%20skin.osk?dl=0)
-![](https://osu.ppy.sh/ss/14372477/3134)
+![](https://osu.ppy.sh/ss/14372487/7fb3)
 
 # [- tko -](https://www.dropbox.com/s/8j6w25m2hnk5vfy/tko.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14143466/ad8f)
