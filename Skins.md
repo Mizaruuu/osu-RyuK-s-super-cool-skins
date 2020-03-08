@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- Ryuk Rafis Toy -](https://www.dropbox.com/s/dn70wp6svjix7md/-%20Ryuk%20Rafis%20Toy%20-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14583207/1c59)
+
 # [- Rafis but Clack -](https://www.dropbox.com/s/x6uoux9vmr2pn0i/-%20Rafis%20but%20Clack-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14569969/d01a)
 
