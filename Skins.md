@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- Hey DT Purple Ryuk edit -](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
+![](https://osu.ppy.sh/ss/14603395/28ff)
+
 # [- Ryuk Rafis Toy -](https://www.dropbox.com/s/dn70wp6svjix7md/-%20Ryuk%20Rafis%20Toy%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14583207/1c59)
 
