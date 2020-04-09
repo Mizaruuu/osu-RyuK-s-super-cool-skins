@@ -9,6 +9,9 @@
 
 # In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
 
+# [- boop -](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
+![](https://osu.ppy.sh/ss/14733957/6cce)
+
 # [- Hey DT Purple Ryuk edit -](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14603395/28ff)
 
