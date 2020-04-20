@@ -3,11 +3,15 @@
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
-# If a link is down it means that it is being updated, just wait a few minutes. 
+# If a link is down let @snowedcoffee or @gabeosu know.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed.
 
-# In other cases it is not listed, please wait a bit as it most likely isn't uploaded due to the skin being new most of the time.
+# Some of the skins RyuK uses might be private.
+
+# Some of the skins RyuK uses might be private.
+
+# Some of the skins RyuK uses might be private.
 
 # [- boop -](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
