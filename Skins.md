@@ -5,13 +5,7 @@
 
 # If a link is down let @snowedcoffee or @gabeosu know.
 
-# Some of the skins RyuK uses might be private or unfinished and may not be listed.
-
-# Some of the skins RyuK uses might be private.
-
-# Some of the skins RyuK uses might be private.
-
-# Some of the skins RyuK uses might be private.
+# Some of the skins RyuK uses might be private or unfinished and may not be listed. 
 
 # [- boop -](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
