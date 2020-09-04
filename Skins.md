@@ -3,12 +3,21 @@
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
-# If a link is down let @snowedcoffee or @gabeosu know.
+# If a link is down let @snowedcoffee or @mzruu know.
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. 
 
 # [- boop -](https://cdn.discordapp.com/attachments/427214130756452353/697696460267061319/boop.osk)
 ![](https://osu.ppy.sh/ss/14733957/6cce)
+
+# [- andros edit -](https://www.dropbox.com/s/czcg38gyz6p04e7/andros%20edit.osk?dl=0)
+![](adding screenshot later)
+
+# [- vaxei 404 -](https://mega.nz/file/hzAHnYrb#nLbTxK29IrqTj5mZl4Yob9ZLYh1PeW2LUC6W0y5mGrQ)
+![](adding screenshot later)
+
+# [- beep -](https://www.dropbox.com/s/h5chgecj4r089d5/Beep.osk?dl=0)
+![](adding screenshot later)
 
 # [- Hey DT Purple Ryuk edit -](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14603395/28ff)
