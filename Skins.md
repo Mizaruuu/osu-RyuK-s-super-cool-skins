@@ -7,6 +7,9 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. 
 
+# [- ryan(mystia)edit -](https://www.dropbox.com/s/dsrd7k9kvwva32m/ryan%28mystia%29%20thing.osk?dl=0)
+![](https://osu.ppy.sh/ss/15871534/3bf7)
+
 # [- tony varv -](https://www.dropbox.com/s/dnmlk2cyz89aimh/tony%20varv.osk?dl=0)
 ![](https://osu.ppy.sh/ss/15626158/88a1)
 
