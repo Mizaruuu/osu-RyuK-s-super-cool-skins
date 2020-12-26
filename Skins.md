@@ -169,7 +169,7 @@
 # [- ddddd orginal -](https://snowy.s-ul.eu/tDytFd3j) 
 ![](https://osu.ppy.sh/ss/12697821)
 
-# [- dddddv2 -](https://www.dropbox.com/s/hsrm9vgkoksu61m/-_ddddd_v2_-.osk?dl=0) 
+# [- dddddv2 -](https://mega.nz/file/JGgQwTqB#KPl0hAYEWxrTc0ZayUpjx9OCG3QRn6z3OknbOGBnHqM) 
 ![](https://osu.ppy.sh/ss/11860986)
 
 # [- ddddd -](https://mizaru.s-ul.eu/OWIOcRTr) 
