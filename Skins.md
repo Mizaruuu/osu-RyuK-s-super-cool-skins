@@ -7,6 +7,9 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. 
 
+# [bees](https://mizaru.s-ul.eu/TNinjFkw) 
+![](https://osu.ppy.sh/ss/11775775)
+
 # [- stoofvarvedit -](https://mega.nz/file/RDgSgQhb#IgIQOoVFT_abhiAzmR8qEFQ-E-Y4vmiAxFmHuxfV83o)
 ![](https://osu.ppy.sh/ss/15975010/428c)
 
@@ -297,9 +300,6 @@
 
 # [aprx2elixir](https://mizaru.s-ul.eu/ZdkcXOxx)
 ![](https://osu.ppy.sh/ss/11775772)
-
-# [bees](https://mizaru.s-ul.eu/TNinjFkw) 
-![](https://osu.ppy.sh/ss/11775775)
 
 # [boom 0524 edit](https://mizaru.s-ul.eu/kFR7FYQ3) 
 ![](https://osu.ppy.sh/ss/11775788)
