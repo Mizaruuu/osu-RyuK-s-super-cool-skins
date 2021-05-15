@@ -35,7 +35,7 @@
 ![](adding screenshot later)
 
 # [- beep -](https://www.dropbox.com/s/h5chgecj4r089d5/Beep.osk?dl=0)
-![](adding screenshot later)
+![](https://osu.ppy.sh/ss/16591294/f443)
 
 # [- Hey DT Purple Ryuk edit -](https://www.dropbox.com/s/le1p7vibmgiv9to/-%20Hey%20DT%20Purple%20Ryuk%20edit%20-.osk?dl=0)
 ![](https://osu.ppy.sh/ss/14603395/28ff)
