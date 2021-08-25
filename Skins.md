@@ -3,7 +3,7 @@
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
-# If a link is down let @snowedcoffee or @mzruu know.
+# If a link is down let @1214su know
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. 
 
