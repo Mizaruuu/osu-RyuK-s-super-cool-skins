@@ -5,7 +5,7 @@
 
 # If a link is down let @1214su know
 
-# Some of the skins RyuK uses might be private or unfinished and may not be listed. 
+# Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
 # [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
 ![](https://osu.ppy.sh/ss/16525543/bc8f)
