@@ -11,8 +11,8 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
-# [- yes this is the monko skin he's using jesus christ WITH THE CLASH ELEMENTS](https://cdn.discordapp.com/attachments/427214130756452353/938480560920203264/MonkoKamui_v2.osk) 
-![](https://i.imgur.com/jPlsg3O.png)
+# [- Ryanstolefromkevin](https://mega.nz/file/dOxm1JST#FubKxxLkCh4ak86rl_7g5Hi2y_HxBj5YYx2BwF4lTh0) 
+![](https://osu.ppy.sh/ss/17545391/2582)
 # [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
 ![](https://osu.ppy.sh/ss/16525543/bc8f)
 
