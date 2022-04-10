@@ -11,8 +11,8 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
-# [- Ryanstolefromkevin](https://mega.nz/file/dOxm1JST#FubKxxLkCh4ak86rl_7g5Hi2y_HxBj5YYx2BwF4lTh0) 
-![](https://osu.ppy.sh/ss/17545391/2582)
+# [- Ryanstolefromkevin](https://mega.nz/file/Rb4BBJJD#QBvbBbAj8OX8R43CWV7wPCrjHyJ1RwpjUJN9x76U0a8) 
+![](https://osu.ppy.sh/ss/17714432/a1e8)
 # [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
 ![](https://osu.ppy.sh/ss/16525543/bc8f)
 
