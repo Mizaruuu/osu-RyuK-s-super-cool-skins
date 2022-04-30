@@ -11,6 +11,9 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
+# [zane skin](https://cdn.discordapp.com/attachments/748660952924291152/969940185750069279/Zane___2020-05-19.osk) 
+![](https://i.imgur.com/LZTdLNV.png)
+
 # [- Ryanstolefromkevin](https://mega.nz/file/Rb4BBJJD#QBvbBbAj8OX8R43CWV7wPCrjHyJ1RwpjUJN9x76U0a8) 
 ![](https://osu.ppy.sh/ss/17714432/a1e8)
 # [- RYUKAYYY wit da MONKOO](https://mega.nz/file/8bwCnRSZ#zt06DQ0aka5Nldc8dz0h_LU5Ph6UHj5Vxlz8c7sBGdc) 
