@@ -7,7 +7,7 @@
 # [HP Bar](https://i.imgur.com/dh79Bwo.png)
 ![](https://i.imgur.com/dh79Bwo.png)
 
-# If a link is down let @1214su know
+# If a link is down let @twinstars01 know (1214#4121) some links are permagone and i don't have the skins so don't bitch at me if i say ur out of luck
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
