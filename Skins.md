@@ -11,6 +11,9 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
+#[- torriru boblow aristia map -](https://mega.nz/file/AGx3VDbC#xFpRUQySZuIBNxeUEraraODPIclAdu1LdWqz4Y_7dqg)
+![](https://osu.ppy.sh/ss/18223414/9428)
+
 # [- alfie_fancy_dt](https://mega.nz/file/4ToUGQDI#dmPj44bm0fZGanSS4IVtrwCTPWjjA8wud-5iboYWutY)
 ![](https://osu.ppy.sh/ss/18184466/2a97)
 
