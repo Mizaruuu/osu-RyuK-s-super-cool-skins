@@ -11,7 +11,10 @@
 
 # Some of the skins RyuK uses might be private or unfinished and may not be listed. (IM NOT UPLOADING A BILLION EDITS OF THE SAME MONKO SKIN)
 
-# [- ryo_dt_rafis -](https://mega.nz/file/BbJgmbIa#gxP_ZtW8fIvNnp-i24d3692nqMC5-ReW7dGMgK89Um0)
+# [- ryo monko thing -](https://mega.nz/file/1PoBQboa#d8IQyEpPejEgmVHBRilpC_lRKiXV2DQ3FH2q2JRRcvA)
+![](https://i.imgur.com/EXQSmRb.png)
+
+]# [- ryo_dt_rafis -](https://mega.nz/file/BbJgmbIa#gxP_ZtW8fIvNnp-i24d3692nqMC5-ReW7dGMgK89Um0)
 ![](https://osu.ppy.sh/ss/18428967/46bd)
 
 # [- bocchi_dt_rafis -](https://mega.nz/file/ZC4VmJ5J#6S83-maoBkQJU1m52HaYcs068oIT7t2TiNVMRxipULE)
